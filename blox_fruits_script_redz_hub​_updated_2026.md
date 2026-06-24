@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Blox Fruits Redz Script](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-redz-free)
+[![Download Blox Fruits Redz Script](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-redz-free)
 
 </div>
 
@@ -83,7 +83,8 @@
 
 <div align="center">
 
-[![Download Blox Fruits Redz Script](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-redz-free)
+
+[![Download Blox Fruits Redz Script](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-redz-free)
 
 </div>
 
@@ -265,7 +266,7 @@ Dominate Blox Fruits with the complete Redz script and guide for free. **🔥 Bl
 
 <div align="center">
 
-[![Download Blox Fruits Redz Script](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-redz-free)
+[![Download Blox Fruits Redz Script](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-redz-free)
 
 </div>
 
