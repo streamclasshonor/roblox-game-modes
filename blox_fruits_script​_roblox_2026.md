@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-roblox-2026)
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-roblox-2026)
 
 </div>
 
@@ -82,7 +82,7 @@
 
 <div align="center">
 
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-roblox-2026)
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-roblox-2026)
 
 </div>
 
@@ -253,7 +253,7 @@ Get unlimited Beli, mastery, and all fruits with the complete Blox Fruits Script
 
 <div align="center">
 
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-roblox-2026)
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-roblox-2026)
 
 </div>
 
