@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/roblox-aimlock-script-free)
+[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/roblox-aimlock-script-free)
 
 </div>
 
@@ -192,7 +192,7 @@ Explore the technical world of game scripts and anti-cheat systems with this fre
 
 <div align="center">
 
-[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/roblox-aimlock-script-free)
+[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/roblox-aimlock-script-free)
 
 </div>
 
